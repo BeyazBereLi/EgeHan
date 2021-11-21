@@ -1,0 +1,2 @@
+# EgeHan
+Kendine Szofreni Freni
